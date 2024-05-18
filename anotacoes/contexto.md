@@ -10,6 +10,11 @@ Enquanto a Fronteira Selvagem treme sob a sombra crescente dos gigantes, destino
 
 # Informações gerais
 
+<figure>
+    <img src="../sword-coast.jpeg" width="400">
+    <figcaption>Mapa da Costa da Espada.</figcaption>
+</figure>
+
 - O mundo está situado na Costa das Espadas, uma região de grande importância comercial e política, conhecida por suas cidades prósperas e portos movimentados.
 - Cidades notáveis incluem 
     - Águas Profundas (Waterdeep), uma metrópole cosmopolita e centro de comércio; 

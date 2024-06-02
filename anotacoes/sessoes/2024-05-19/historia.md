@@ -12,7 +12,7 @@ Os heróis entram e já percebem várias pedras grandes fincadas no chão, do me
 
 Komodo, enquanto os demais investigam os corpos, vê no lado sudeste do forte escombros e decide se esgueirar entre os escombros para entrar no forte. Kraft chama a atenção de todos e os relembra que há uma porta na parte principal, o que faz desnecessária a escolha de Komodo. Mesmo assim Decinho CDs e Rámem decidem seguir a estratégia de Komodo, o restante do grupo vai pela porta principal.
 
-- O velório
+## O velório
 
 Guttson é quem está na frente na hora que vão abrir a porta e entrar. Ele então abre a porta principal com um empurrão, fazendo bastante barulho e alertando quem está no local.
 

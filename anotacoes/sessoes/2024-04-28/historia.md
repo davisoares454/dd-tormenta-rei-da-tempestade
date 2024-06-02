@@ -1,5 +1,8 @@
+# História
 
-# Flashback sobre como se conheceram (Decinho CDs, Kraft, Komodo e Rámem)
+Historia da sessão do dia **28 de Abril de 2024**.
+
+## Flashback sobre como se conheceram (Decinho CDs, Kraft, Komodo e Rámem)
 
 Decinho CDs vivia em uma cidade ao sul de Neverwinter, ele conhecia bem o dono da taberna (Dafrith) onde ele frequentava. Nessa mesma taberna ele conheceu Kraft. Um dia conversando com Kraft, encontraram Komodo falando com um morador de rua, e isso chamou a atenção dos dois, os quais foram falar com Komodo e então viraram amigos. Um outro dia, os 3 andavam em direção a taberna, e no caminho Kraft tropeça em um gnomo, esse gnomo era Rámem.
 
@@ -7,7 +10,7 @@ O taberneiro passa por eles na rua, e os chamam para acompanhá-lo até a tabern
 
 Os 4 decidem ir juntos à Pedra da Noite seguindo a Estrada Alta.
 
-# Chegada em Pedra da Noite
+## Chegada em Pedra da Noite
  
 Pedra da Noite é um vilarejo composto por uma vila fechada por muralhas de madeira de 4,5m e que possui um fosso de extensão de 9m entre a muralha e a estrada de fora. Os 4 chegam na estrada da vila e já notam que algo está errado pois a ponte que liga o vilarejo e a estrada está abaixada e sem pessoas nas torres de vigia que fica na entrada. Komodo sobe em uma árvore próxima à entrada e tenta observar sobre a muralha, mas só consegue ver os telhados das construções do vilarejo.
  
@@ -23,7 +26,7 @@ Komodo combina com Decinho CDs, e ele decide correr até o cercado da plantaçã
  
 Os dois goblins são derrotados, mas na mesma hora aparecem mais dois que foram chamados a atenção pelo barulho da batalha anterior
 
-# Dois novos heróis
+## Dois novos heróis
 
 Enquanto isso, chegam na parte externa da casa onde haviam verificado e estava revirada, Guttson Lo-Kag e Lysander Novoice assistem a batalha contra os goblins que está acontecendo. Após conversarem sobre isso, decidem ir até lá para ajudar. Guttson bate em disparada em direção ao cercado, enquanto Lysander começa a tocar uma música em um berimbau para inspirar ele.
 
@@ -33,7 +36,7 @@ O grupo que já estava em batalha a mais tempo consegue derrotar os dois goblins
 
 O grupo de Decinho CDs e Komodo informam a eles que eles estão em uma missão para derrotar os goblins daquela região mas que não há recompensa para isso (o que é mentira). Guttson e Lysander decidem se juntar ao grupo e ajudar eles a limpar aquela região deste mal
 
-# Caindo numa fria
+## Caindo numa fria
 
 Na parte sul do vilarejo há uma segunda ponte, onde que em uma outra mota há um castelo mais elevado que o vilarejo, mas essa ponte está quebrada, provavelmente por ter sido atingida por uma das pedras que atingiram o vilarejo.
 

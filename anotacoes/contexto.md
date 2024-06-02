@@ -2,7 +2,7 @@
 
 Nas vastidões sombrias da Fronteira Selvagem, conhecida como o Norte, um cenário de beleza cruel se desdobra. Terra fria, áspera e pouco povoada, onde montanhas cobertas de neve se erguem solitárias, colinas rochosas se estendem e florestas esparsas escondem segredos ancestrais.
 
-Banha pelo Mar das Espadas a oeste e cercada pelo Deserto de Anauroch a leste, a Fronteira Selvagem se estende do Vale do Vento Gélido ao norte até a cidade de Vau da Adaga ao sul. Estradas antigas serpenteiam, ligando fortalezas anãs a assentamentos costeiros e cidades fronteiriças.
+Banhada pelo Mar das Espadas a oeste e cercada pelo Deserto de Anauroch a leste, a Fronteira Selvagem se estende do Vale do Vento Gélido ao norte até a cidade de Vau da Adaga ao sul. Estradas antigas serpenteiam, ligando fortalezas anãs a assentamentos costeiros e cidades fronteiriças.
 
 No entanto, além da beleza selvagem, a região é assombrada por ameaças sombrias. Dragões malignos, servos de Tiamat, uma vez aterrorizaram os assentamentos. Agora, gigantes emergem de suas fortalezas com ferocidade, ameaçando todos os habitantes. Rumores de ataques ecoam nas cidades costeiras, alimentando o medo de uma guerra iminente.
 

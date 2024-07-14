@@ -34,4 +34,4 @@ Na frente do grupo há uma pedra grande fincada no chão, Guttson corre e pega c
 
 Guttson arremessa uma de suas adagas em direção dos wogs, mas ele erra, e isso chama a atenção dos worgs ao grupo. Komodo então toma a dianteira e vai para cima de um dos worgs, executando golpes. Enquanto isso Sydiri vai na direção do outro worg com sua lança, consegue acertar o monstro mas recebe um mordida com muita força em seu braço direito, causando o worg a arrancar o membro.
 
-Kraft lança magias de gelo nos worgs, mas sem causar muito dano. Kaelen vê seu amigo de guarda ser gravemente ferido, e corre em direção ao worg com sua lança e finca ela no monstro. Komodo dá um golpe final no primeiro worg, e Guttson executa golpes desarmados no segundo worg, matando-o.
+Kraft lança magias de gelo nos worgs, mas sem causar muito dano. Decinho CDs e Rámem não fazem nada enquanto a batalha acontece, parece que eles estão fora de si. Kaelen vê seu amigo de guarda ser gravemente ferido, e corre em direção ao worg com sua lança e finca ela no monstro. Komodo dá um golpe final no primeiro worg, e Guttson executa golpes desarmados no segundo worg, matando-o.
